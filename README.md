@@ -1,2 +1,0 @@
-# ArtemYakovlev
- My first Repasitory
